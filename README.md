@@ -7,4 +7,4 @@ Green
 Blue
 Indigo
 Violet
-and a cute little Kitty cat
+and a cute little Kitty cat coughing up fur balls
